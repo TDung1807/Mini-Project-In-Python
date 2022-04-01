@@ -6,7 +6,7 @@
 Đừng làm hại code của tôi
 
 
-3 bài mất 3 ngày.
+5 bài mất 5 ngày.
 
 
 xin cảm ơn >33
